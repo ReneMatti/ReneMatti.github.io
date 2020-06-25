@@ -4,3 +4,5 @@ Der Auftragskiller Chev Chelios wacht, sichtlich benommen, durch das Geraeusch e
 * vergiftet
 * cool
 * wahnsinnig
+Quote:
+> Fuck You
