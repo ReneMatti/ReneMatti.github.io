@@ -1,3 +1,4 @@
 # Crank
 
-Der Auftragskiller Chev Chelios wacht, sichtlich benommen, durch das Geräusch eines klingelnden Telefons auf. Auf seiner Suche nach dem Telefon entdeckt er eine DVD mit der Aufschrift „Fuck You“. Durch Abspielen der DVD erfährt er, dass er von seinem Widersacher Ricky Verona in seiner eigenen Wohnung niedergeschlagen und anschließend vergiftet wurde – als Rache dafür, dass er den chinesischen Triadenboss Don Kim umgebracht haben soll. Ricky erklärt, dass er durch die Injektion des sogenannten „Beijing-Cocktails“ (ein Gemisch von irreversiblen Betablockern) nur noch kurze Zeit zu leben habe.
+Der Auftragskiller Chev Chelios wacht, sichtlich benommen, durch das Geräusch eines klingelnden Telefons auf.
+Auf seiner Suche nach dem Telefon entdeckt er eine DVD mit der Aufschrift „Fuck You“ von seinem Widersacher Ricky Verona.
